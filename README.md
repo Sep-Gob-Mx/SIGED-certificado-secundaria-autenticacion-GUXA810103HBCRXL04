@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GUXA810103HBCRXL04
+GUXA810103HBCRXL04
